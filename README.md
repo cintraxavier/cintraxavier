@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @cintraxavier
+- 👋 Hi, I’m @cintraxavier and Rabti Smille or Xavier
 - 👀 I’m interested in bike and movie
-- 🌱 I’m currently learning course in the University Virtual of the San Paul
+- 🌱 I’m currently learning course in the Uniasselvi of the San Paul
 - 💞️ I’m looking to collaborate on maybe Lacrei - https://www.portallacrei.com.br/
 - 📫 How to reach me warbear6@gmail.com
 
